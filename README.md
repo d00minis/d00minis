@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @d00minis
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on learning
+- 📫 How to reach me kdominis@gmail.com
